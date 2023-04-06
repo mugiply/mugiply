@@ -1,6 +1,6 @@
 ## My Favorite IM@S Idols
 
-### In charge as P
+### As P
 [![橘ありす](https://img.shields.io/badge/CINDERELLA%20GIRLS-%E6%A9%98%E3%81%82%E3%82%8A%E3%81%99-5881C1?style=for-the-badge)](https://idollist.idolmaster-official.jp/detail/20104)
 
 ### As fan
